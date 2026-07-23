@@ -16,4 +16,4 @@ Básicamente aprenderemos más sobre Git y GitHub con este proyecto
 
 
 
-# Juan Jose Roman Bernal
+# Juan Jose Roman Bernal yo amo a valentina gallego baena mi novia de 4 años 
